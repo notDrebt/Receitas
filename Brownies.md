@@ -8,7 +8,7 @@ Spray antiaderente de óleo vegetal
 
 1 e 1/4 copos de açucar
 
-3/4 de copo de cacau em pó
+1 copo de cacau em pó
 
 1/2 colher de chá de sal kosher
 

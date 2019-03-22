@@ -2,7 +2,7 @@
 
 ## Ingredientes
 
-1 xícara de manteiga sem sal, derretida, e mais um pouco para untar as formas
+2 xícara de manteiga sem sal, derretida, e mais um pouco para untar as formas
 
 1 e ¼ xícaras de farinha de trigo, e mais um pouco para enfarinhar as formas
 
@@ -14,7 +14,7 @@
 
 2 xícaras de açúcar
 
-4 ovos grandes em temperatura ambiente
+5 ovos grandes em temperatura ambiente
 
 ## Modo de preparo
 
